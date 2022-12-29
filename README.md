@@ -1,2 +1,2 @@
-# it project probably not gonna finish it
+# it project hopefully I'll finish it
 erjhbgerbv to change something and see tge changes 
